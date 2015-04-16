@@ -7,6 +7,10 @@ April 16th, 2015
 
 ---
 
+[Download Slides](https://github.com/sr320/talk-safs-2015/raw/master/2015-SAFS-Roberts-SLIDES.pdf)
+
+---
+
 Recording (coming soon)
 
 
