@@ -11,7 +11,7 @@ April 16th, 2015
 
 ---
 
-Recording (coming soon)
+[Recording](https://panopto.uw.edu/Panopto/Pages/Viewer.aspx?id=023f5a98-597f-4904-900f-e5838f99935e) (Panopto) 
 
 
 
